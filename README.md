@@ -1,1 +1,1 @@
-# omer_go_fuck_yourself
+FUCK YOU OMER YOU FUCKING FAT CUNT
